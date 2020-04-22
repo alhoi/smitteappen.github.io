@@ -1,1 +1,0 @@
-# smitteappen.github.io
